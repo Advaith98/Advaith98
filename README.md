@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Advaith Krishnan
+# Hi I'm Advaith!👋
 
 <div align="center">
 
